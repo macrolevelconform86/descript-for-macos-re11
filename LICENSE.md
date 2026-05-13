@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Descript for macOS preset with Descript for macOS automatic Preset: chromatic-aberration-fix & batch-rendering. Featuring chromatic-aberration-fix and
 
 
 
